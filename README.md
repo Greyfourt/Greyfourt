@@ -1,6 +1,6 @@
 👋 Hi, I’m @Greyfourt,
 
-I'm a (not so much anymore) newbie web designer trying to discover the most possible 👀
+I'm a UI/UX designer trying to discover the most possible 👀
 
 I’m looking to collaborate and learn new things on the way :)
 
