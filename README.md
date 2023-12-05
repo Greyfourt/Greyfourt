@@ -7,7 +7,7 @@ I’m looking to collaborate and learn new things on the way :)
 📫 To reach me:
    - [LinkedIn](https://www.linkedin.com/in/nazli-ozcubukcuoglu/) 
    - Figma Community ~ 🚧 Under construction 
-   - [dewwwe Studio ✨](https://dewwwe.com)
+   - [dewwwe ✨](https://dewwwe.com)
     
 
 <!---
