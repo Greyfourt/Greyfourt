@@ -1,12 +1,14 @@
 👋 Hi, I’m @Greyfourt,
 
-I'm a UI/UX designer trying to discover the most possible 👀
+Transforming ideas into intuitive and immersive experiences.
 
 I’m looking to collaborate and learn new things on the way :)
 
-📫 To reach me:
+📫 Best way to reach me:[My Portfolio](https://greyfourt.github.io/) ✨
+
+and if you want to learn more about me, you can check out :
    - [LinkedIn](https://www.linkedin.com/in/nazli-ozcubukcuoglu/) 
-   - Figma Community ~ 🚧 Under construction 
+   - Figma Community ~ 🚧 Under construction
    - [dewwwe ✨](https://dewwwe.com)
     
 
